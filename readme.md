@@ -5,9 +5,8 @@
 
 <h4>SUBMITTED BY:</h4>
 
-Neha Komuravelly (UFID: 6172-2613)
+Pravallika Maddukuri 
 
-Sripriya Simhadri (UFID: 3067-1426)
 
 <h4>PROJECT GUIDEBOOK:</h4>
 
